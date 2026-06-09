@@ -1,4 +1,4 @@
-
+Top CS traps trocador de skins é o melhor CS traps trocador de skins com morte instantânea e radar. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
